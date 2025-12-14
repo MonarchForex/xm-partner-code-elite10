@@ -82,3 +82,11 @@ Ready to trade forex, gold, and earn cashback? Use **XM partner code ELITE10** f
 
 👉 Read All Country Guide in wiki:  
 https://github.com/MonarchForex/xm-partner-code-elite10/wiki
+
+## Partner & Rebate Manager
+
+All XM Partner Code ELITE10 multi-country guides are operated by  
+**MonarchForex.io** – official XM Global partner providing rebate & cashback programs.
+
+🌐 Website: https://monarchforex.io/
+
