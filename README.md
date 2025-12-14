@@ -77,3 +77,8 @@ Ready to trade forex, gold, and earn cashback? Use **XM partner code ELITE10** f
 **Join 10,000+ profitable traders with free pivot point signals & cashback**
 
 </div>
+
+## XM Partner Code ELITE10 Wiki
+
+👉 Read All Country Guide in wiki:  
+https://github.com/MonarchForex/xm-partner-code-elite10/wiki
