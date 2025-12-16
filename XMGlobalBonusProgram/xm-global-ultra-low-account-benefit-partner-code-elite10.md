@@ -1,3 +1,44 @@
+# XM Ultra Low Account + XM Partner Code ELITE10 Rebate Program Review 2025
+
+**XM Ultra Low Account** delivers professional-grade trading with spreads starting from **0.6 pips** + fixed **$3.5 commission per lot**, perfect for high-frequency traders combining scalping strategies with **XM Partner Code ELITE10** rebate program that returns up to **90% of trading costs** as cashback.
+
+This powerful combination reduces effective trading costs to near-zero while providing real-time rebate tracking through **XM My Wallet** dashboard – trusted by thousands of volume traders worldwide.
+
+## What Makes XM Ultra Low Account + ELITE10 Exceptional
+
+**XM Ultra Low Account** targets serious traders needing precision execution:
+
+- **Spreads**: EUR/USD averages **0.6 pips** (vs 1.0 Standard) + **$3.5/lot** commission
+- **Leverage**: Up to **1:1000** forex pairs, **1:500** gold/crypto
+- **Execution**: **99% fill rate <1 second** during volatility spikes
+- **Platforms**: MT4/MT5 + copy trading with verified signal providers
+
+**XM Partner Code ELITE10** enhances profitability through:
+- **90% rebate** on commissions (**$3.15 cashback** per Ultra Low lot)
+- Real-time tracking via My Wallet dashboard
+- Weekly/monthly payouts to trading account
+- Multi-account rebate accumulation
+
+**Real math**: Ultra Low **$3.5 commission** - ELITE10 **90% rebate ($3.15)** = **$0.35 effective cost per lot**
+
+## Step-by-Step: Setup XM Ultra Low + Activate ELITE10 Rebates
+
+Complete activation takes under 10 minutes for maximum rebate efficiency:
+
+1. **[Register XM Account](https://affs.click/L6qln)** → Select **Ultra Low** account type
+2. Enter **XM Partner Code ELITE10** during registration (**critical for rebates**)
+3. Complete KYC verification (ID + address proof, approved 24 hours)
+4. Login **XM Members Area** → **My Wallet** → confirm ELITE10 connection
+5. Download MT4/MT5 → login Ultra Low server
+6. **Start trading** – rebates accrue automatically per lot
+7. Monitor real-time rebates in My Wallet + setup auto-withdrawal
+
+**Pro tip**: Trade **10+ lots daily** = **$30+ weekly rebates** with ELITE10 on Ultra Low.
+
+## XM Ultra Low + ELITE10 Performance Breakdown
+
+**Cost Comparison Per 10 Lots EUR/USD (Daily Scalping)**:
+
 
 **Weekly Volume Example** (50 lots):
 - Gross commission: **$175**
