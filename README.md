@@ -1,4 +1,4 @@
-# Pivot Point Scalping Strategy: Complete Guide with XM ELITE10 Rebate Program (2026)
+# Pivot Point Scalping Strategy: Complete Guide with XM ELITE10 Rebate Program by MonarchForex (2026)
 
 > **Meta Description:** Master pivot point scalping with this complete 2026 guide. Learn proven entry/exit strategies, risk management, and how XM ELITE10 rebates can add 1-12% monthly growth to your trading account.
 
@@ -768,3 +768,9 @@ Professional scalpers don't just trade well — they trade efficiently. ELITE10 
 - Master 5-10 pivot bounce setups
 - Achieve 65%+ win rate consistently
 - Document trades in journal
+
+## XM Partner Code ELITE10 – Video Explanation
+
+[![XM Rebates Explained](https://img.youtube.com/vi/7J-EhB30twU/0.jpg)](https://www.youtube.com/watch?v=7J-EhB30twU)
+
+This video explains how XM Partner Code ELITE10 works and how traders can earn daily rebates.
