@@ -774,3 +774,10 @@ Professional scalpers don't just trade well — they trade efficiently. ELITE10 
 [![XM Rebates Explained](https://img.youtube.com/vi/7J-EhB30twU/0.jpg)](https://www.youtube.com/watch?v=7J-EhB30twU)
 
 This video explains how XM Partner Code ELITE10 works and how traders can earn daily rebates.
+
+## XM Global Affiliate Program Explained – How It Works & Commission System
+
+[![XM Global Affiliate Program – How I Earned $400,000 in 5 Years](https://img.youtube.com/vi/nDCOJsPnatI/0.jpg)](https://www.youtube.com/watch?v=nDCOJsPnatI)
+
+In this video, I share my real experience building the **XM Global Affiliate Program** and how it generated over **$400,000 in commissions within 5 years**.  
+Learn how the XM affiliate system works, how to attract traders, and how long-term commissions are built.
