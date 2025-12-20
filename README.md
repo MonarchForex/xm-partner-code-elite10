@@ -763,3 +763,8 @@ Professional scalpers don't just trade well — they trade efficiently. ELITE10 
 - Document trades in journal
 
 #### 💰 Step 3: Go Live with Small Capital
+
+- Start with $100 - $1000 capital
+- Master 5-10 pivot bounce setups
+- Achieve 65%+ win rate consistently
+- Document trades in journal
